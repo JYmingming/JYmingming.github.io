@@ -1,2 +1,0 @@
-# JYmingming.github.io
-portfolio
